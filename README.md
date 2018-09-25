@@ -12,7 +12,7 @@ Graduation years are listed out for easy searching
 
 
 
-### [Product Management Intern](https://careers.google.com/jobs#!t=jo&jid=/company/associate-product-manager-intern-summer-1600-amphitheatre-pkwy-mountain-view-ca-4156080579)
+### [Hulu Product Management Intern](https://careers.google.com/jobs#!t=jo&jid=/company/associate-product-manager-intern-summer-1600-amphitheatre-pkwy-mountain-view-ca-4156080579)
 ##### Seattle and Santa Monica       <br> No application closing date listed
 
 <li>Undergrad: 2019, 2020, 2021, 2022</li>
