@@ -30,3 +30,17 @@ Sonos
 Roblox
 
 IBM
+
+Yelp
+
+Expedia
+
+NextDoor
+
+Visa
+
+Datacamp
+
+RedHat
+
+Dow Jones
